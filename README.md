@@ -1,0 +1,1 @@
+http://fujeris.borec.cz/
